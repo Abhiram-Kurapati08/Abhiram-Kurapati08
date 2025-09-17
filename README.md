@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **yeshobhiram08@gmail.com**
 
-- ⚡ Fun fact **I think I am Charismatic**
+
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
